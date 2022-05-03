@@ -9,6 +9,7 @@ Probably want to [rent these from REI](https://www.rei.com/rentals/pricing) for 
   - Rain fly (above)
 * Sleeping bag (40 degree)
 * Sleeping pad (inflatable)
+* Pillow
 * Camp chair (nice to have)
 
 ## Clothing
